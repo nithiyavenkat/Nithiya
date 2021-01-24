@@ -1,2 +1,1 @@
-
-Hello
+Am Nithiya Venkatraman, applications developer at ADP,Norfolk. Am pursuing my MS at ODU.Pro-active, Dynamic and love gaining knowledge everyday.Yoga and meditation are my regular routine. Fond of traveling and have covered most of the east-coast. Watch detective movies and Sherlock Holmes is the favorite.
